@@ -22,6 +22,8 @@
 
 ![Screenshot 2024-03-19 224038](https://github.com/khallypha-10/Apex-Furniture/assets/113286546/5599339d-5cee-4b60-bb18-77859a5fbf50)
 
+![Screenshot 2024-03-19 230911](https://github.com/khallypha-10/Apex-Furniture/assets/113286546/31d87f1b-6720-408e-9bb5-d3c8073bf1ee)
+
 ![Screenshot 2024-03-19 224145](https://github.com/khallypha-10/Apex-Furniture/assets/113286546/62a4f242-88f6-44e9-acd3-150f74dcfc82)
 
 
